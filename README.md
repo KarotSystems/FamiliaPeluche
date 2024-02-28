@@ -8,7 +8,7 @@ Tiene una historia divertida ademas de ser entretenido, recalcando que finger se
 La serie trata sobre las vivencias de una familia común y corriente de la ficticia Ciudad Peluche. La familia está integrada por:
 
 + *Federica* una 💃 superficial que está a cargo del control de la casa
-![**Federica Peluche**](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.facebook.com%2Fpermalink.php%3Fstory_fbid%3D105370274558692%26id%3D102480208181032%26substory_index%3D0&psig=AOvVaw2AzzOGszkBKUBHpqa_ZH6B&ust=1709220191907000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCODXgsSrzoQDFQAAAAAdAAAAABAN)
+![**Federica Peluche**](https://televisa.brightspotcdn.com/dims4/default/8fe3807/2147483647/strip/true/crop/999x750+100+0/resize/818x614!/quality/90/?url=https%3A%2F%2Ftelevisa-brightspot.s3.amazonaws.com%2Fapi%2F02%2F5c%2F9af178c349778800a8ac6acb2235%2Flos-looks-de-federica.jpg)
 
 + *Ludovico* un esposo 👶 y 😏 que se limita a escuchar las órdenes de su esposa
 ![**Ludovico Peluche**](https://www.williamjacket.com/wp-content/uploads/2022/10/Ludovico-P.-Luche-Baby-Blue-Fur-Coat.webp)
